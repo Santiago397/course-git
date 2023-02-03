@@ -1,1 +1,1 @@
-Anybody has thinking about the first things?? I mean, who was the first person that though about how to do a hammer? Dunno, who needs a hammer when you have a fucking black child? 
+Anybody has thinking about the first things?? I mean, who was the first person that though about how to do a pickaxe? Dunno, who needs a pickaxe when you have a fucking black child? 

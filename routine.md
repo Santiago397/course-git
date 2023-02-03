@@ -1,0 +1,1 @@
+Anybody has thinking about the first things?? I mean, who was the first person that though about how to do a hammer?
